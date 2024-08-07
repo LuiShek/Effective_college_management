@@ -1,0 +1,1 @@
+# Effective_college_management
